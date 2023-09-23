@@ -7,3 +7,4 @@ Blablabla
 Gostou do curso?
 
 Todos os dias quando acordo não tenho mais o tempo que passou.
+Bora lá ei novinha vamo lá
